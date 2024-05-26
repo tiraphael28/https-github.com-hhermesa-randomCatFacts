@@ -1,4 +1,4 @@
-1111Качаем аккаунты Github для Gitcoin Passport
+1111Ка1чаем аккаунты Github для Gitcoin Passport
 
 https://t.me/ponquitter
 
